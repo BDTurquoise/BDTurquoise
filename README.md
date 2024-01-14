@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @BDTurquoise
-- 👀 I’m interested in ...building my skills and making new contacts
+- 👀 I’m interested in ... building my skills and making new contacts
 - 🌱 I’m currently learning ... with UWA's Data Analytics Boot Camp
 - 💞️ I’m looking to collaborate on ... any project or task which will help me learn
 - 📫 How to reach me ... Email me @ bradley.curthoys@outlook.com  
